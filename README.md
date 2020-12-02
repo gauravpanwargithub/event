@@ -1,2 +1,2 @@
 # event
-https://rulexistence.com/event
+https://rulexistence.com/gaurav
